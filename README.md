@@ -4,6 +4,8 @@ Griefer blocktales fiction kin
 
 I am a very wary and cautious person when I make a friend or meet new people but I am sure to warm up to you over time!! I generally love meeting new people.!! pls bmf!! /nf Don't be pushy, I will be peeved!! 11!! 1! 1! also pleasepspslslslps c+h with me I love cuddles, unless stated otherwise 
 
+TOXICHERO FANS INT PLSPLSLS /NF I NEED FRIENDS PSLSSLPSLSPSPLSS PEPASPSLSLS /NFFFF
+
 ≻───── ⋆✩⋆ ─────≺
 
 ![1750568385730463188161903312520](https://github.com/user-attachments/assets/2b1baecf-07a7-4420-9f15-b2d6503656b6)
