@@ -19,17 +19,9 @@ TOXICHERO FANS INT PLSPLSLS /NF I NEED FRIENDS PSLSSLPSLSPSPLSS PEPASPSLSLS /NFF
 </p>
 ──────⊹⊱✫⊰⊹──────
 
-<p align="center">
- 
-[Rentry](https://rentry.co/GR13F3R-P1LL3D) ✦ [pronouns.cc](https://pronouns.cc/@Gr13F3R-P1LL3D) 
- 
-</p>
+[Rentry](https://rentry.co/GR13F3R-P1LL3D) ✦ [pronouns.cc](https://pronouns.cc/@Gr13F3R-P1LL3D)
 
-<p align="center">
- 
 Sign my [Ata](https://bulletv4nity-2000.atabook.org/) !!! 
-
-</p>
 
 <p align="center">
 READ MY RENTRIES BYI/BYF!!!!!! 
