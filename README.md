@@ -13,17 +13,22 @@ TOXICHERO FANS INT PLSPLSLS /NF I NEED FRIENDS PSLSSLPSLSPSPLSS PEPASPSLSLS /NFF
 ≻───── ⋆✩⋆ ─────≺
 
 ![1750568385730463188161903312520](https://github.com/user-attachments/assets/2b1baecf-07a7-4420-9f15-b2d6503656b6)
+
 <p align="center">
 *Griefer [blocktales fanart] by mizotek on DeviantArt*
 </p>
 ──────⊹⊱✫⊰⊹──────
 
 <p align="center">
+ 
 [Rentry](https://rentry.co/GR13F3R-P1LL3D) ✦ [pronouns.cc](https://pronouns.cc/@Gr13F3R-P1LL3D) 
+ 
 </p>
 
 <p align="center">
+ 
 Sign my [Ata](https://bulletv4nity-2000.atabook.org/) !!! 
+
 </p>
 
 <p align="center">
